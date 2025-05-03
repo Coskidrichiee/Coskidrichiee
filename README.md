@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Coskidrichiee
+- 👋 Hi, I’m @Osayi Ebhodaghe Cosmas 
 - 👀 I’m interested in web site Development.
-- 🌱 I’m currently learning web site Development.
+- 🌱 I’m currently working as a self employed web developer 
 - 💞️ I’m looking to collaborate on web site design.
-- 📫 How to reach me +2348089231475 or whatsapp:+2347050340431.Email:osayicosmas1994@gmail.com
+- 📫 How to reach me +2348089231475 or whatsapp:+2348168924263.Email:osayicosmas1994@gmail.com/osayicosmas1992@gmail.com
 - 😄 Pronouns: He.
 - ⚡ Fun fact: football,watching movies.
 
